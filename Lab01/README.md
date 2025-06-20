@@ -1,2 +1,0 @@
-# bmttnc_DuongLeAnhTuan_2280603542
-DuongLeAnhTuan_2280603542
